@@ -1,1 +1,1 @@
-# soufiane2-prog.github.io
+google.com, pub-8305907459502848, DIRECT, f08c47fec0942fa0
